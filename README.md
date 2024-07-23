@@ -1,13 +1,22 @@
 # vidith
+
 dzxcxzvzxcvcvv
-vd
-sv
 
-cvzx
-v
+vdxxxxxxxxxxxxxxxxx
 
-s
-v
+svcxzcxxxxxxxxxxxxxxxxxxxx
+
+zcxzczxxxxxxxxxxxxxxxxxxxxxxxxxx
+
+xzcxcvzxzxcxz
+
+vxcz
+
+
+xcvxzc
+sxzvvzxcvxz
+
+vvczxvxzv
 cx
 v
 cx
